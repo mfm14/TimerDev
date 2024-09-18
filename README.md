@@ -1,4 +1,3 @@
 Don't look!
 --
---
-[Shh](https://github.com/user-attachments/assets/82d51aa7-0249-43b5-bc97-574f8957c345)
+![blindfold](https://github.com/user-attachments/assets/8297507e-4cc4-413d-98ad-56a86a5c35b3)
